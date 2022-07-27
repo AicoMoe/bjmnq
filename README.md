@@ -7,7 +7,7 @@
 <br><br>
 汉化补丁下载链接：
 <br>
-&nbsp; d sgdrive://100520146/7a26c9b81a3bf78bf6186f9e868e2bec
+&nbsp;d sgdrive://100520146/7a26c9b81a3bf78bf6186f9e868e2bec
 <br><br>
 下载器的下载链接：
 <br>
