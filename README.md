@@ -3,7 +3,7 @@
 <br><br>
 原版游戏下载链接：
 <br>
-
+&nbsp;d sgdrive://100520146/1fc758b238cc731cc7551b866ad23f21
 <br><br>
 汉化补丁下载链接：
 <br>
