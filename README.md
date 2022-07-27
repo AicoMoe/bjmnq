@@ -11,8 +11,7 @@
 <br><br>
 下载器的下载链接：
 <br>
-https://raw.iqiq.io/AicoMoe/bjmnq/blob/94e6f4a622472c6825283d01a80b88d86a0ee785/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.zip
-# https://github.com/AicoMoe/bjmnq/blob/94e6f4a622472c6825283d01a80b88d86a0ee785/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.zip
+https://github.com/AicoMoe/bjmnq/blob/94e6f4a622472c6825283d01a80b88d86a0ee785/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.zip
 <br><br>
 使用教程：
 <br>
