@@ -12,7 +12,7 @@
 下载器的下载链接：
 <br>
 https://github.com/AicoMoe/bjmnq/blob/45ed390cb6de2575b856d503ed5304c8a7266726/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.zip
-<br>
+<br><br>
 使用教程：
 <br>
 解压压缩包
