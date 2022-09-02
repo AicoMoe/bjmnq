@@ -13,4 +13,4 @@
 <br><br>
 用此网站加快下载速度：
 <br>
-https://jixia.baidui.vip/#/jxdo
+<a href="https://jixia.baidui.vip/#/jxdo">https://jixia.baidui.vip/#/jxdo</a>
