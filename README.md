@@ -11,7 +11,7 @@
 <br>
 链接: https://pan.baidu.com/s/1Wx3vfKHC6ZtfHQjpjbDc7g?pwd=mfij 提取码: mfij 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
-用此工具加快下载速度：
+可用此工具加快下载速度：
 <br>
 <a href="https://jixia.baidui.vip/#/and">https://jixia.baidui.vip/#/and</a>
 <br><br>
