@@ -14,3 +14,8 @@
 用此网站加快下载速度：
 <br>
 <a href="https://jixia.baidui.vip/#/jxdo">https://jixia.baidui.vip/#/jxdo</a>
+<br><br>
+<hr />
+问题反馈：
+<br>
+<a href="https://github.com/AicoMoe/bjmnq/issues">https://github.com/AicoMoe/bjmnq/issues</a>
