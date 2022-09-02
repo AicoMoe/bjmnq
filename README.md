@@ -1,7 +1,7 @@
 # 病娇模拟器
 病娇模拟器的中文下载页，搬运原版游戏，以及汉化补丁。
 <br>
-网址：https://aicomoe.github.io/bjmnq/
+网址：<a href="https://aicomoe.github.io/bjmnq/">https://aicomoe.github.io/bjmnq/</a>
 <br><br>
 原版游戏下载链接：（2022.09.02）
 <br>
