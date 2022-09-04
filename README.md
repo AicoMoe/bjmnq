@@ -16,6 +16,6 @@
 <a href="https://jixia.baidui.vip/#/and">https://jixia.baidui.vip/#/and</a>
 <br><br>
 <hr />
-问题反馈：
+问题反馈留言板：（需要<a href="https://github.com/">GitHub</a>帐号）
 <br>
 <a href="https://github.com/AicoMoe/bjmnq/issues">https://github.com/AicoMoe/bjmnq/issues</a>
