@@ -3,9 +3,9 @@
 <br>
 网址：<a href="https://aicomoe.github.io/bjmnq/">https://aicomoe.github.io/bjmnq/</a>
 <br><br>
-原版游戏下载链接：（2022.09.02）
+原版游戏下载链接：（2022.09.15）
 <br>
-链接: https://pan.baidu.com/s/1juUP9GFqT8gRbotMNa0oYw?pwd=vxca 提取码: vxca 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: https://pan.baidu.com/s/1Mp5F9oXgmUOR3BQa5A9nMw?pwd=x3c5 提取码: x3c5 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
 汉化补丁下载链接：（2022.03.00）
 <br>
