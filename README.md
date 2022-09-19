@@ -7,9 +7,9 @@
 <br>
 链接: https://pan.baidu.com/s/1Mp5F9oXgmUOR3BQa5A9nMw?pwd=x3c5 提取码: x3c5 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
-汉化补丁下载链接：（2022.03.00）
+汉化补丁下载链接：（2022.08.15）
 <br>
-链接: https://pan.baidu.com/s/1Wx3vfKHC6ZtfHQjpjbDc7g?pwd=mfij 提取码: mfij 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet 提取码: exet 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
 可用此工具加快下载速度：
 <br>
