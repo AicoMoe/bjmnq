@@ -2,6 +2,7 @@
 病娇模拟器的中文下载页，搬运原版游戏，以及汉化补丁。
 <br>
 搬运站网址：<a href="https://aicomoe.github.io/bjmnq/">https://aicomoe.github.io/bjmnq/</a>
+<br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
 原版游戏下载链接：（2022.10.16）
