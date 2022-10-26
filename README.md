@@ -7,7 +7,7 @@
 <br><br>
 原版游戏下载链接：（2022.10.16）
 <br>
-链接: <a href="https://pan.baidu.com/s/1tE6kBNwzcuyZvxM5o66eiQ?pwd=4gs4">https://pan.baidu.com/s/1tE6kBNwzcuyZvxM5o66eiQ?pwd=4gs4</a> 提取码: 4gs4 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: https://pan.baidu.com/s/1E9CCYXvgHfimCUKO74UQHg?pwd=u572 提取码: u572 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
 汉化补丁下载链接：（2022.08.15）
 <br>
