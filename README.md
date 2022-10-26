@@ -5,7 +5,7 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2022.10.16）
+原版游戏下载链接：（2022.10.24）
 <br>
 链接: https://pan.baidu.com/s/1E9CCYXvgHfimCUKO74UQHg?pwd=u572 提取码: u572 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
