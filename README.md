@@ -7,11 +7,11 @@
 <br><br>
 原版游戏下载链接：（2022.11.21）
 <br>
-链接: https://pan.baidu.com/s/1V2v1Q4HE8eJHG924vBVMdg?pwd=u838 提取码: u838 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: <a href="https://pan.baidu.com/s/1V2v1Q4HE8eJHG924vBVMdg?pwd=u838">https://pan.baidu.com/s/1V2v1Q4HE8eJHG924vBVMdg?pwd=u838</a> 提取码: u838
 <br><br>
 汉化补丁下载链接：（2022.08.15）
 <br>
-链接: <a href="https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet">https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet</a> 提取码: exet 复制这段内容后打开百度网盘手机App，操作更方便哦
+链接: <a href="https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet">https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet</a> 提取码: exet
 <br><br>
 可用此工具加快下载速度：
 <br>
