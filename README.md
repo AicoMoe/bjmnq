@@ -5,12 +5,9 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2022.11.01）
+原版游戏下载链接：（2022.11.21）
 <br>
-通过百度网盘分享的文件：ys_2022_…
-链接:https://pan.baidu.com/s/1iVgDYWk7Iwn_pmAgnzc7hw?pwd=5haq 
-提取码:5haq
-复制这段内容打开「百度网盘APP 即可获取」
+链接: https://pan.baidu.com/s/1V2v1Q4HE8eJHG924vBVMdg?pwd=u838 提取码: u838 复制这段内容后打开百度网盘手机App，操作更方便哦
 <br><br>
 汉化补丁下载链接：（2022.08.15）
 <br>
