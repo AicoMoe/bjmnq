@@ -14,9 +14,7 @@
 链接: <a href="https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet">https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet</a> 提取码: exet
 <br><br>
 可用此工具加快下载速度：
-<br>
-<a href="https://jixia.ba《失效，正在解决》idui.vip/#/and">https://jixia.bai（失效，正在解决）dui.vip/#/and</a>
-<br><br>
+<br>《正在寻找解决方案》<br><br>
 <hr />
 问题反馈留言板：（需要<a href="https://github.com/">GitHub</a>帐号）
 <br>
