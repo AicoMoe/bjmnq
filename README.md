@@ -15,7 +15,7 @@
 <br><br>
 可用此工具加快下载速度：
 <br>
-<a href="https://jixia.ba《失效，正在解决》idui.vip/#/and">https://jixia.baidui.vip/#/and</a>
+<a href="https://jixia.ba《失效，正在解决》idui.vip/#/and">https://jixia.bai（失效，正在解决）dui.vip/#/and</a>
 <br><br>
 <hr />
 问题反馈留言板：（需要<a href="https://github.com/">GitHub</a>帐号）
