@@ -5,16 +5,20 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2023.01.01）
+原版游戏下载链接：（2023.01.15）
 <br>
-链接: <a href="https://pan.baidu.com/s/17C_Riclft33PynF904Rh4Q?pwd=xefm">https://pan.baidu.com/s/17C_Riclft33PynF904Rh4Q?pwd=xefm</a> 提取码: xefm
+
+链接: <a href="https://pan.baidu.com/s/14pDfShuNpkSvK-RiXa0amg?pwd=6qu4">https://pan.baidu.com/s/14pDfShuNpkSvK-RiXa0amg?pwd=6qu4</a> 提取码: 6qu4
+
 <br><br>
 汉化补丁下载链接：（2022.08.15）
 <br>
 链接: <a href="https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet">https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet</a> 提取码: exet
 <br><br>
 可用此工具加快下载速度：
-<br>《正在寻找解决方案》<br><br>
+<br>
+<a href="https://udown.vip/#/soft">https://udown.vip/#/soft</a>
+<br><br>
 <hr />
 问题反馈留言板：（需要<a href="https://github.com/">GitHub</a>帐号）
 <br>
