@@ -5,10 +5,9 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2023.01.15）
+原版游戏下载链接：（2023.02.03）
 <br>
-
-链接: <a href="https://pan.baidu.com/s/14pDfShuNpkSvK-RiXa0amg?pwd=6qu4">https://pan.baidu.com/s/14pDfShuNpkSvK-RiXa0amg?pwd=6qu4</a> 提取码: 6qu4
+链接: <a href="https://pan.baidu.com/s/1BTbVjoLnvqzcUdfyAdBKIA?pwd=t46e">https://pan.baidu.com/s/1BTbVjoLnvqzcUdfyAdBKIA?pwd=t46e</a> 提取码: t46e
 
 <br><br>
 汉化补丁下载链接：（2022.08.15）
