@@ -14,9 +14,9 @@
 <br>
 链接: <a href="https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet">https://pan.baidu.com/s/1TzzRJmqhXZFqWizJDxj5uQ?pwd=exet</a> 提取码: exet
 <br><br>
-可用此工具加快下载速度：
+可用此办法加快下载速度：
 <br>
-<a href="https://udown.vip/#/soft">https://udown.vip/#/soft</a>
+<a href="https://udown.vip/#/soft">移民火星</a>
 <br><br>
 <hr />
 问题反馈留言板：（需要<a href="https://github.com/">GitHub</a>帐号）
