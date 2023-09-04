@@ -5,9 +5,9 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2023.02.03）
+原版游戏下载链接：（2023.07.27）
 <br>
-链接: <a href="https://pan.baidu.com/s/1BTbVjoLnvqzcUdfyAdBKIA?pwd=t46e">https://pan.baidu.com/s/1BTbVjoLnvqzcUdfyAdBKIA?pwd=t46e</a> 提取码: t46e
+[https://pysiagrusia.pl/Games/Simulation_Games/Yandere_Simulator/YandereSimulator-August-27-2023.zip](https://pysiagrusia.pl/Games/Simulation_Games/Yandere_Simulator/YandereSimulator-August-27-2023.zip)
 
 <br><br>
 汉化补丁下载链接：（2022.08.15）
