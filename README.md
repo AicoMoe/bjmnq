@@ -1,3 +1,7 @@
+网站已迁移至：<a href="https://cc7v.wodemo.com/entry/545119">https://cc7v.wodemo.com/entry/545119</a>
+<br><br><br><br><br>
+请移步至上面的新站点，以下文本仅作历史记录
+<br><br><br><br><br>
 # 病娇模拟器
 病娇模拟器的中文下载页，搬运原版游戏，以及汉化补丁。
 <br>
