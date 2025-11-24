@@ -5,7 +5,7 @@
 <br>
 病模官方站：<a href="https://yanderedev.wordpress.com/downloads/">https://yanderedev.wordpress.com/downloads/</a>
 <br><br>
-原版游戏下载链接：（2025.10.15）（打开后点击右上角的小下载按钮，下载好后把下载器拖动到想要下载游戏的文件夹，再双击打开下载器）
+原版游戏下载链接：（2025.11.01）（打开后点击右上角的小下载按钮，下载好后把下载器拖动到想要下载游戏的文件夹，再双击打开下载器）
 <br>
 [https://github.com/AicoMoe/bjmnq/blob/main/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.bat](https://github.com/AicoMoe/bjmnq/blob/main/%E7%97%85%E5%A8%87%E6%A8%A1%E6%8B%9F%E5%99%A8%E4%B8%8B%E8%BD%BD%E5%99%A8.bat)
 
